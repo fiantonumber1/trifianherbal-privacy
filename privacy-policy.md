@@ -1,4 +1,4 @@
-Kebijakan pribadi
+Kebijakan privasi
 ----------------
 
 ### Pengantar
